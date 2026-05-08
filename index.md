@@ -47,4 +47,4 @@
 ## 8. Контакты
 Если у вас есть вопросы о конфиденциальности, напишите нам:
 
-Email: **your-email@example.com**
+Email: **pibadubadidad@gmail.com**
